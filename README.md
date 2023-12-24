@@ -4,6 +4,6 @@
 
 
  
-> My goal is to make a significant contribution to technological advancement while continuing to develop myself as a competent and visionary professional.
+My goal is to make a significant contribution to technological advancement while continuing to develop myself as a competent and visionary professional.
 
 # :)
